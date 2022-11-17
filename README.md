@@ -11,16 +11,7 @@
 
     🌱 I’m currently learning Máster en Formación del Profesorado
 
-    👯 I’m looking to collaborate on ...
-
-     🤔 I’m looking for help with ...
-
+  
     💬 Ask me about dogs
 
-     📫 How to reach me: ...
-
-     😄 Pronouns: ...
-
-     ⚡ Fun fact: ...
-
-
+     
